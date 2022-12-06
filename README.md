@@ -30,9 +30,6 @@
 >![Retro_pong GIF](./Retro_pong.gif)
 
 
-
-
-
 >## For any query you can reach out at brijeshvadaliya1@gmail.com I am happy to help 😎
 
 # HAPPY LEARNING 🤩
